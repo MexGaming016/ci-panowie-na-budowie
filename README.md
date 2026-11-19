@@ -1,1 +1,0 @@
-# ci-panowie-na-budowie
